@@ -1,0 +1,1 @@
+# Smart-Manufacturing-Analytics-Workforce-Productivity-Optimization-in-the-Apparel-Industry
